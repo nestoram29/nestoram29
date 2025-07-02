@@ -2,6 +2,8 @@
 
 University of North Texas MSCS graduate
 
+University of Arizona MSDC student
+
 Currently living and working in Tucson, AZ
 
 To reach me send me a message on LinkedIn:
